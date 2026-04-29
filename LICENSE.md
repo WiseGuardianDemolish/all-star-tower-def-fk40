@@ -1,4 +1,4 @@
-
+all star tower defense no-ban Script is the best all star tower defense Script, featuring no clip and god mode. Safe and powerful for all your needs.
 
 
 
